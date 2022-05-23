@@ -1,1 +1,1 @@
-somrthing good comes in waves
+something good comes in waves
